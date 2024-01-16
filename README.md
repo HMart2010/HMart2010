@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HMart2010
 - 👀 I’m interested in... Mechanical Engineering
 - 🌱 I’m currently learning... Algebra 2
-- 💞️ I’m looking to collaborate on... I don't know how to code :P
-- 📫 How to reach me... All of my usernames are HMart2010 (discord, fn, mc, rblx, etc...)
+- 💞️ I’m looking to collaborate on... I know how to write VERY BASIC javascript, and I know how to use blender.
+- 📫 How to reach me... All my usernames are HMart2010 (discord, fn, mc, rblx, etc...)
 - ⚡ Fun fact:... As of Jan 16, 2024, I currently have 534 hours on Fortnite
